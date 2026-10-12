@@ -1,0 +1,1 @@
+# G.A.T.E.-Grace-And-Truth-Evangelism
